@@ -1,6 +1,4 @@
 # Paatal Lok Season 2 [ 𝙢𝙤𝙫𝙞𝙚 ] 𝙙𝙤𝙬𝙣𝙡𝙤𝙖𝙙 𝙛𝙞𝙡𝙢𝙮𝙯𝙞𝙡𝙡𝙖 𝙢𝙥4𝙢𝙤𝙫𝙞𝙚𝙯 𝙠𝙪𝙩𝙩𝙮𝙢𝙤𝙫𝙞𝙚𝙨 𝙫𝙚𝙜𝙖𝙢𝙤𝙫𝙞𝙚𝙨 𝙛𝙞𝙡𝙢𝙮𝙬𝙖𝙥 𝙝𝙙𝙝𝙪𝙗𝟒𝙪 𝙛𝙞𝙡𝙢𝙮𝙝𝙞𝙩 𝙝𝙞𝙣𝙙𝙞 𝙩𝙖𝙢𝙞𝙡 𝙩𝙚𝙡𝙪𝙜𝙪 𝙙𝙪𝙗𝙗𝙚𝙙 𝟕𝟐𝟎𝙥 𝟒𝟖𝟎𝙥
-![Click Here GIF](https://media.tenor.com/qWWK-O83J5YAAAAi/click-here.gif)
-
 <h3><a href="https://movieslink.short.gy/Paatal-lok">➤ ►🌍📺📱👉 𝙥𝙖𝙖𝙩𝙖𝙡 𝙡𝙤𝙠 𝙨𝙚𝙖𝙨𝙤𝙣 𝟐 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
 <h3><a href="https://movieslink.short.gy/Paatal-lok">➤ ►🌍📺📱👉 𝙥𝙖𝙖𝙩𝙖𝙡 𝙡𝙤𝙠 𝙨𝙚𝙖𝙨𝙤𝙣 𝟐 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
